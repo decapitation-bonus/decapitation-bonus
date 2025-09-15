@@ -5,7 +5,13 @@
 </div>
 <br>
 <div align="center">hi, you can call me <b>jesse</b> or <b>indiana</b>!</div>
-<div align="center">this is my intro for <i><ins>ponytown</ins></i></div>
+<div align="center">this is my intro for <i><ins>ponytown</ins></i>
+  <br><br>
+
+[strawpage](https://decapitation-bonus.straw.page) · [pronouns.cc](https://pronouns.cc/@pinkmaan) · [atabook](https://jinkman.atabook.org/)
+
+</div>
+
 <br>
 <div align="center">
   
