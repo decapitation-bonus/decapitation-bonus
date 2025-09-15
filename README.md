@@ -54,6 +54,7 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
   <br>-
   <br>vivziepop supporters/defenders
   <br><i>hazbin hotel/helluva boss fans on thin ice</i>
+  <br> <b>daryl x beth shippers (bethyl) PLS dni yall make me so uncomfy</b>
 </details></div>
 <br>
 <div align="center">
