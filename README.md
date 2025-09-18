@@ -70,3 +70,6 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
 ![](https://files.catbox.moe/cpxxh4.jpg)
 
 </div>
+<div align="center"> enjoy my dump </div>
+
+<br> <div align="center">![](https://files.catbox.moe/1el67n.gif) ![](https://files.catbox.moe/jlwaqs.png) ![](https://files.catbox.moe/k0x78p.png) ![](https://files.catbox.moe/7coe0x.png) ![](https://files.catbox.moe/bbw1ld.gif) ![](https://files.catbox.moe/18vl0q.gif) ![](https://files.catbox.moe/oaqffn.png) ![](https://files.catbox.moe/dnbdjx.webp) ![](https://files.catbox.moe/8529td.webp) ![](https://files.catbox.moe/14slud.webp) ![](https://files.catbox.moe/g6ohjn.webp) ![](https://files.catbox.moe/5u2bqm.webp) ![](https://files.catbox.moe/tzgwfp.gif) ![](https://files.catbox.moe/5weigp.png) ![](https://files.catbox.moe/xlexvx.webp) ![](https://files.catbox.moe/gkpsho.webp) ![](https://files.catbox.moe/nory9o.gif) ![](https://files.catbox.moe/n2lzrx.webp) ![](https://files.catbox.moe/1d9wv9.png) ![](https://files.catbox.moe/s5omqh.png) ![](https://files.catbox.moe/cs58eo.jpg) ![](https://files.catbox.moe/8gu9ev.jpg) ![](https://files.catbox.moe/zbj7sb.webp) </div>
