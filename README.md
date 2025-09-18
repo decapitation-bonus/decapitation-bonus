@@ -1,6 +1,7 @@
 <div align="center">
 
-![](https://files.catbox.moe/rzv1z1.png)
+![](https://files.catbox.moe/ikv7rk.jpg)
+![](https://files.catbox.moe/ajhqjd.png)
 
 </div>
 <br>
@@ -65,6 +66,7 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
 <br>
 <div align="center">
 
-![](https://files.catbox.moe/pwu1fj.png)
+![](https://files.catbox.moe/ajhqjd.png)
+![](https://files.catbox.moe/cpxxh4.jpg)
 
 </div>
