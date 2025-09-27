@@ -58,6 +58,7 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
   <summary>do not interact</summary>
   general criteria
   <br>darkshippers, proshippers
+  <br>if you use or support any kind of generative ai (chatgpt, chai, c.ai, etc.)
   <br>-
   <br>vivziepop supporters/defenders
   <br><i>hazbin hotel/helluva boss fans on thin ice</i>
