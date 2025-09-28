@@ -48,6 +48,7 @@
   <summary><i>comf characters</i></summary>
 jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
   <br>white lily cookie & pure vanilla cookie
+  <br>+ many more!
 </details></div>
 
 <div align="center">
