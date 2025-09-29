@@ -71,7 +71,7 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
 </details></div>
 <div align="center">
   
-![](https://files.catbox.moe/weqtku.webp)
+![](https://files.catbox.moe/89iyj5.png)
   
 <br>
 
