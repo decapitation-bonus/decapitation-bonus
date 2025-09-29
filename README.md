@@ -13,7 +13,7 @@
 <div align="center">
   <br><br>
 
-[strawpage](https://decapitation-bonus.straw.page) · [pronouns.cc](https://pronouns.cc/@pinkmaan) · [atabook](https://jinkman.atabook.org/)
+[strawpage](https://decapitation-b0nus.straw.page) · [pronouns.cc](https://pronouns.cc/@pinkmaan) · [atabook](https://jinkman.atabook.org/)
 
 </div>
 
