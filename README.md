@@ -1,7 +1,7 @@
 <div align="center">
 
-![](https://files.catbox.moe/ikv7rk.jpg)
-![](https://files.catbox.moe/ajhqjd.png)
+![](https://files.catbox.moe/ntujen.jpg)
+![](https://files.catbox.moe/orj78x.jpg)
 
 </div>
 <div align="center">
@@ -20,7 +20,7 @@
 <br>
 <div align="center">
   
-  ![](https://files.catbox.moe/xe3kt4.png) </div>
+  ![](https://files.catbox.moe/th2wm2.png) </div>
 <div align="center">· · ─────── ·𖥸· ─────── · ·</div>
 <br>
 <div align="center"><details>
@@ -69,11 +69,14 @@ jesse pinkman, amy sosa & jonah simms, <br> daryl dixon & beth greene,
   <br><i>hazbin hotel/helluva boss fans on thin ice</i>
   <br> <b>daryl x beth shippers (bethyl) PLS dni yall make me so uncomfy</b>
 </details></div>
-<br>
 <div align="center">
+  
+![](https://files.catbox.moe/b50pes.webp)
+  
+<br>
 
-![](https://files.catbox.moe/ajhqjd.png)
-![](https://files.catbox.moe/cpxxh4.jpg)
+![](https://files.catbox.moe/orj78x.jpg)
+![](https://files.catbox.moe/ntujen.jpg)
 
 </div>
 <div align="center"> takes a dump on you /silly </div>
