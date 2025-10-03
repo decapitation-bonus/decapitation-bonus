@@ -5,7 +5,7 @@
 
 </div>
 <div align="center">
-<br><i>"what's the point of being an outlaw when you got responsibilities?"</i>
+<br><i><b>"what's the point of being an outlaw when you got responsibilities?"</b></i>
   <br>___
 </div>
 <br>
