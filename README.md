@@ -5,7 +5,7 @@
 
 </div>
 <div align="center">
-<br><i>"sometimes it feels like your love is as real as an unknowing bunny..." /lyr</i>
+<br><i>"what's the point of being an outlaw when you got responsibilities?"</i>
   <br>___
 </div>
 <br>
