@@ -8,5 +8,5 @@
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 sorry, the readme is still a work in progress!
 <br>
-##### <i>please read my strawpage in the meantime</i>
+## <i>please read my <ins>strawpage</ins> in the meantime</i>
 </div>
