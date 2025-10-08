@@ -3,7 +3,7 @@
  ‎ ,‎ ‎ ‎  ‎ you seem aquainted with those doors<b>...</b> ❞ ﹒ ノ
 <br><br><br>
   
-ꕀ﹒　[strawpage](https://decapitation-b0nus.straw.page)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
+ꕀ﹒　[strawpage](https://decapitation-bonus.straw.page)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
 
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 sorry, the readme is still a work in progress!
