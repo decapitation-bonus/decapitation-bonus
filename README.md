@@ -1,4 +1,7 @@
 <div align="center">
+𐔌 ﹒ ❝ We remember a face like yours<b>,</b><br>
+ ‎ ,‎ ‎ ‎  ‎ you seem aquainted with those doors<b>...</b> ❞ ﹒ ノ
+<br><br><br>
   
 ꕀ﹒　[strawpage](https://decapitation-b0nus.straw.page)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
 
