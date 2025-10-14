@@ -4,6 +4,7 @@
 <br><br><br>
   
 ꕀ﹒[strawpage](https://decapitation-bonus.straw.page)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
+<br> <i>* planning to make a rentry... we'll see</i>
 
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 sorry, the readme is still a work in progress!
