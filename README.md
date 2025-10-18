@@ -3,11 +3,12 @@
  ‎ ,‎ ‎ ‎  ‎ you seem aquainted with those doors<b>...</b> ❞ ﹒ ノ
 <br><br><br>
   
-ꕀ﹒[strawpage](https://decapitation-bonus.straw.page)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
-<br> <i>* planning to make a [rentry](https://rentry.co/pinkmaan)... we'll see</i>
+ꕀ﹒[rentry](https://rentry.co/pinkmaan)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
+
+
+⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊  ┆ ♪
 
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 sorry, the readme is still a work in progress!
 <br>
-## <i>please read my <ins>strawpage</ins> in the meantime</i>
 </div>
