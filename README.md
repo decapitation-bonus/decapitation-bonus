@@ -1,6 +1,6 @@
 <div align="center">
-𐔌 ﹒ ❝ We remember a face like yours<b>,</b><br>
- ‎ ,‎ ‎ ‎  ‎ you seem aquainted with those doors<b>...</b> ❞ ﹒ ノ
+𐔌 ﹒ ❝ afraid of what might be<b>,</b><br>
+ ᅠ‎ ᅠ‎ᅠ‎  ,‎ ‎ ‎  ‎ i feel like im dying<b>...</b> ❞ ﹒ ノ
 <br><br><br>
   
 ꕀ﹒[rentry](https://rentry.co/pinkmaan)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
