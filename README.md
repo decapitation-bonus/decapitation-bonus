@@ -8,6 +8,8 @@
 
 ⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊  ┆ ♪
 
+*yayy i finally finished the rentry... it only took me 4 hours!!!!*
+
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 sorry, the readme is still a work in progress!
 <br>
