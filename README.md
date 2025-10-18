@@ -11,6 +11,6 @@
 *yayy i finally finished the rentry... it only took me 4 hours!!!!*
 
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
-sorry, the readme is still a work in progress!
+i can't stop thinking about DARYL DIXON 💔💔💔
 <br>
 </div>
