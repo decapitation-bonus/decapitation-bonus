@@ -8,7 +8,7 @@
 
 ⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊    [pronouns.cc](https://pronouns.cc/@pinkmaan) . ┆ ♪
 
-*yayy i finally finished the rentry... it only took me 4 hours!!!!*
+*please read the rentry before you interact!!!*
 
 <br>▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀<br><br>
 i can't stop thinking about DARYL DIXON 💔💔💔
