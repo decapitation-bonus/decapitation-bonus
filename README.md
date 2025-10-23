@@ -6,7 +6,7 @@
 ꕀ﹒[rentry](https://rentry.co/d1xon)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
 
 
-⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊  ┆ ♪
+⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊    [pronouns.cc](https://pronouns.cc/@pinkmaan) . ┆ ♪
 
 *yayy i finally finished the rentry... it only took me 4 hours!!!!*
 
