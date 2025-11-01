@@ -1,7 +1,4 @@
 <div align="center">
- 
-![](https://files.catbox.moe/4d23nz.png)
- <br><br>
 𐔌 ﹒ ❝ afraid of what might be<b>,</b><br>
  ᅠ‎ ᅠ‎ᅠ‎  ,‎ ‎ ‎  ‎ i feel like im dying<b>...</b> ❞ ﹒ ノ
 <br><br><br>
