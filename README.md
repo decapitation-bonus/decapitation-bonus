@@ -1,6 +1,6 @@
 <div align="center">
-𐔌 ﹒ ❝ afraid of what might be<b>,</b><br>
- ᅠ‎ ᅠ‎ᅠ‎  ,‎ ‎ ‎  ‎ i feel like im dying<b>...</b> ❞ ﹒ ノ
+"i'm gonna make it real carl, i promise.
+<br>i'm gonna make it real."
 <br><br><br>
   
 ꕀ﹒[rentry](https://rentry.co/grimeyy)   ノ   [atabook](https://dixon.atabook.org/)    ₊    𐂯
