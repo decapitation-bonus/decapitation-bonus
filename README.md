@@ -1,5 +1,5 @@
 <div align="center">
-"i'm gonna make it real carl, i promise.
+"i'm gonna make it real, carl. i promise.
 <br>i'm gonna make it real."
 <br><br><br>
   
