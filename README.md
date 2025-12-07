@@ -4,7 +4,4 @@
 <br><br>
 <i>please read my rentry and pronouns.cc</i> <br><br>
   
-ꕀ﹒[rentry](https://rentry.co/grimeyy)   ノ   [pronouns.cc](https://pronouns.cc/@pinkmaan)    ₊    𐂯
-
-
-⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page) . ┆ ♪
+ꕀ﹒[rentry](https://rentry.co/grimeyy)   ノ   [pronouns.cc](https://pronouns.cc/@pinkmaan)  . ┆ ♪
