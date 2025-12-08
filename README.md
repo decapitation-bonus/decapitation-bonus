@@ -5,3 +5,7 @@
 <i>please read my pronouns.cc</i> <br><br>
   
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@pinkmaan)  . ┆ ♪
+
+<br>
+
+![the walking dead season 2 cast](https://files.catbox.moe/4hmm2z.jpg)
