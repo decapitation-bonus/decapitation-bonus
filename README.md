@@ -5,6 +5,9 @@
 <i>please read my pronouns.cc</i> <br><br>
   
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@pinkmaan)  . ┆ ♪
+<br>
+
+⊹ ࣪ ˖ [strawpage](https://rainbow-connection.straw.page) ⌇ ⋆˚࿔
 
 <br>
 
