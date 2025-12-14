@@ -12,7 +12,7 @@
 
 ------
 
-[rentry](https://rentry.co/-rainbow-connection)
+[rentry](https://rentry.co/shleepzie)
 <br>(very poorly made lol i was lazy)
 
 <br>
