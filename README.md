@@ -8,6 +8,12 @@
 <br>
 
 ⊹ ࣪ ˖ [strawpage](https://rainbow-connection.straw.page) ⌇ ⋆˚࿔
+<br>
+
+------
+
+[rentry](https://rentry.co/-rainbow-connection)
+<br>(very poorly made lol i was lazy)
 
 <br>
 <b>WARNING I WILL 100% TALK ABOUT MAJOR TWD SPOILERS. WARN ME IF YOU DONT WANT THAT</b>
