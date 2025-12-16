@@ -16,6 +16,5 @@
 <br>(very poorly made lol i was lazy)
 
 <br>
-<b>WARNING I WILL 100% TALK ABOUT MAJOR TWD SPOILERS. WARN ME IF YOU DONT WANT THAT</b>
 
 ![the walking dead season 2 cast](https://files.catbox.moe/4hmm2z.jpg)
