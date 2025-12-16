@@ -7,7 +7,7 @@
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@pinkmaan)  . ┆ ♪
 <br>
 
-⊹ ࣪ ˖ [strawpage](https://rainbow-connection.straw.page) ⌇ ⋆˚࿔
+⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔
 <br>
 
 ------
