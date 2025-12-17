@@ -12,8 +12,7 @@
 
 ------
 
-[rentry](https://rentry.co/shleepzie)
-<br>(very poorly made lol i was lazy)
+[SIGN MY TREE?](https://colormytree.me/2025/01KCPWATQ07003C45D0P9XKMN0)
 
 <br>
 
