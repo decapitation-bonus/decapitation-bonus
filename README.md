@@ -4,7 +4,7 @@
 <br><br>
 <i>please read my pronouns.cc</i> <br><br>
   
-ꕀ﹒[pronouns.cc](https://pronouns.cc/@pinkmaan)  . ┆ ♪
+ꕀ﹒[pronouns.cc](https://pronouns.cc/@shleepzie)  . ┆ ♪
 <br>
 
 ⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔
