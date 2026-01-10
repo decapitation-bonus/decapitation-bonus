@@ -7,7 +7,7 @@
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@shleepzie)  . ┆ ♪
 <br>
 
-⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔
+⊹ ࣪ ˖ [remaking strawpage] ⌇ ⋆˚࿔
 <br>
 
 ------
