@@ -2,12 +2,10 @@
 "i'm gonna make it real, carl. i promise.
 <br>i'm gonna make it real."
 <br><br>
-<i>please read my pronouns.cc</i> <br><br>
+  
+⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔ <br><br>
   
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@shleepzie)  . ┆ ♪
-<br>
-
-⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔
 <br>
 
 ------
