@@ -1,6 +1,5 @@
 <div align="center">
-"i'm gonna make it real, carl. i promise.
-<br>i'm gonna make it real."
+“ This will be remembered as my best act yet! ”
 <br><br>
   
 ⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔ <br><br>
