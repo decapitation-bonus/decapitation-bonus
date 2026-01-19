@@ -2,7 +2,7 @@
 “ This will be remembered as my best act yet! ”
 <br><br>
   
-⊹ ࣪ ˖ [strawpage](https://shleepzie.straw.page) ⌇ ⋆˚࿔ <br><br>
+⊹ ࣪ ˖ (remaking strawpage) ⌇ ⋆˚࿔ <br><br>
   
 ꕀ﹒[pronouns.cc](https://pronouns.cc/@shleepzie)  . ┆ ♪
 <br>
